@@ -1,1 +1,1 @@
-https://umutiik.github.io/umutdgnwebpage.github.io/
+https://umutiik.github.io/personal-web-page-umutiik.github.io/
